@@ -1,10 +1,10 @@
-![image alt](https://github.com/wardahbintezahid/Food-Order-Website/blob/main/scrst/%231.png?raw=true
+![image alt](https://github.com/wardahbintezahid/Food-Order-Website/blob/main/scrst/%231.png?raw=true)
 
 ![image alt](https://github.com/wardahbintezahid/Food-Order-Website/blob/main/scrst/%232.png?raw=true)
 
 ![image alt](https://github.com/wardahbintezahid/Food-Order-Website/blob/main/scrst/%233.png?raw=true)
 
-![image alt](https://github.com/wardahbintezahid/Food-Order-Website/blob/main/scrst/%234.png?raw=true
+![image alt](https://github.com/wardahbintezahid/Food-Order-Website/blob/main/scrst/%234.png?raw=true)
 
 ![image alt](https://github.com/wardahbintezahid/Food-Order-Website/blob/main/scrst/%235.png?raw=true)
 
